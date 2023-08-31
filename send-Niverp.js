@@ -56,7 +56,7 @@ Muito aprendizado, muita felicidade e amor no coração!
 Que Deus lhe ilumine!
 Obrigada por existir! Amo você!
 PARABÉNS!
-http://feliz-aniversario.jopek.pl/
+
 FELICIDADES ETERNAS PARA TI
 Feliz aniversário para você que faz parte da minha vida!
 Feliz aniversário para você que ilumina todos os meus dias!
@@ -196,7 +196,7 @@ Sabe aqueles momentos em que não podemos esperar por algo incrível? Existem oc
 Quando você nasceu, sei que uma nova estrela brilhou no céu, cheia de esperanças, sonhos e promessas de uma vida maravilhosa e cheia de surpresas maravilhosas. Claro que em todo céu de estrelas, sempre há o dia que as nuvens encobrem o brilho incansável que elas emanam, mas mesmo sob a nuvem mais densa, sabemos que há aquele brilho intenso, só esperando uma pequena brecha para aparecer e iluminar, apontar a direção, enamorar os corações aflitos.
 Sua luz intensa não pode ser esquecida, e saber que você nasceu, e que em breve fará aniversário me faz contar os minutos para comemorar esse dia, e algumas vezes, como hoje, simplesmente não posso esperar o dia certo e preciso te dizer que te desejo um Feliz Aniversário, repleto de felicidades, saúde, paz e muitas risadas, porque estrela que é estrela faz todos beberem do seu brilho contagioso e rirem de alegria.
 Felicidades e parabéns!
-feliz-aniversario.jopek.pl
+
 PARABÉNS E MUITAS FELICIDADES
 Que a vida não te traga só felicidades, te traga também os desafios que te ensinarão a saborear com gosto cada sorriso, cada lágrima de alegria e cada vez que você se levantar de um tombo.
 Lembre-se sempre que você está rodeado de pessoas que gostam de você e vai sempre te ajudar
@@ -279,7 +279,8 @@ Obrigada, meu Deus, por tudo! Espero que esse ano seja ainda melhor!
 MENSAGEM DE ANIVERSÁRIO DE EMPRESA PARA FUNCIONÁRIO
 Feliz aniversário! Ter um funcionário como você na equipe é motivo de sobra para celebrar todos os dias! É com imensa alegria que comemoramos a sua vida hoje e demonstramos toda nossa gratidão por sua dedicação e competência.
 Você é merecedor de todo o respeito, confiança e reconhecimento conquistados e esperamos que este novo ano venha repleto de sucesso, metas alcançadas e limites superados. Que você continue conosco, cresco pessoal e profissionalmente. Muitos mais anos de vida, saúde, sonhos realizados e felicidade e um dia cheio de paz e alegria. Parabéns!
-mais: http://feliz-aniversario.jopek.pl
+
+
 POEMA DE ANIVERSÁRIO
 Que o seu aniversário seja vibrante
 Cheio de luz, cores e poesia
